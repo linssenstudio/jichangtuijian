@@ -111,7 +111,7 @@ Coffee Cloud 咖啡云机场支持 Shadowsocks AEAD 协议，国内多个接入�
 
 [闪电猫机场官网](https://clashxiazai.com/speedcat) ｜ [闪电猫机场怎么样？](https://clashsubs.com/how-about-speedcat/)  
 
-[![鹿语云机场](https://clashsubs.com/wp-content/uploads/2025/03/%E9%B9%BF%E8%AF%AD%E4%BA%91%E6%9C%BA%E5%9C%BA-LUYUYUN-ClashSub.webp "鹿语云机场")](https://clashsubs.com/luyuyun)
+[![鹿语云机场](https://clashsubs.com/wp-content/uploads/2025/03/%E9%B9%BF%E8%AF%AD%E4%BA%91%E6%9C%BA%E5%9C%BA-LUYUYUN-ClashSub.webp "鹿语云机场")](https://hn4v3twh.luyuyun.link)
 ### 7.鹿语云机场
 
 - 新兴专线翻墙机场
@@ -127,7 +127,7 @@ Coffee Cloud 咖啡云机场支持 Shadowsocks AEAD 协议，国内多个接入�
 - 豪华套餐：￥99/月，900G流量/月。  
 
 
-[鹿语云官网](https://clashsubs.com/luyuyun) ｜ [鹿语云机场怎么样？](https://clashsubs.com/how-about-luyuyun/)  
+[鹿语云官网](https://hn4v3twh.luyuyun.link) ｜ [鹿语云机场怎么样？](https://clashsubs.com/how-about-luyuyun/)
 
 ![Flying Bird 飞鸟机场](https://clashxiazai.com/wp-content/uploads/2022/12/Flying-Bird-飞鸟机场.png)
 ### 8.FlyingBird 飞鸟机场
@@ -142,7 +142,7 @@ FlyingBird 飞鸟机场是一家新晋 Shadowsocks 翻墙服务商，采用国�
 - 黄金套餐：¥75/月，500G流量/月，不限速不限设备。
 - 钻石套餐：¥150/月，1000G流量/月，不限速不限设备。
 
-[FlyingBird 官网](https://clashxiazai.com/flyingbird) ｜ [FlyingBird 飞鸟机场怎么样？](https://clashxiazai.com/flyingbird)  
+[FlyingBird 官网](https://fbinv02.fbaff.cc/auth/register?code=Z9XQK2GK) ｜ [FlyingBird 飞鸟机场怎么样？](https://clashxiazai.com/flyingbird)
 
 
 [![Totoro Cloud 龙猫云 ](https://clashsubs.com/wp-content/uploads/2023/10/Totoro-Cloud-%E9%BE%99%E7%8C%AB%E4%BA%91%E6%9C%BA%E5%9C%BA-ClashSub.webp "Totoro Cloud 龙猫云 ")](https://clashsubs.com/totoro)
